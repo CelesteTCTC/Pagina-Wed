@@ -8,4 +8,7 @@ Pago Online: Como tenemos  solo tienda online   puedes realizar el pago con tarj
 Pago contraentrega: Si quieres que llevemos el producto a un punto de entregga podemos  llevartelo, pero tendrias que pagar un adicional de 5 soles  .
  
  Tambien ofrecemos variedad de ofertas y descuentos , Para saber mas sobre nuestra  tienda online visitala aqui👉 http://www.shirley.com.mialias.net
+
+
+ Link de medium👉  https://medium.com/@ssebastian_71625/projecto-05-5464371667e5
  
