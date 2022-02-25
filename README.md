@@ -11,4 +11,7 @@ Pago contraentrega: Si quieres que llevemos el producto a un punto de entregga p
 
 
  Link de medium👉  https://medium.com/@ssebastian_71625/projecto-05-5464371667e5
+
+ link de el video👉 https://loom.com/share/4debcee06b3c4519b6bc9d56511fa878
+
  
